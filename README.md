@@ -1,1 +1,1 @@
-# favourite-snacks
+Málaga Photo Album
